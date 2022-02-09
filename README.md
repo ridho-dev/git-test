@@ -2,4 +2,4 @@
 
 Add name here:
 - Ridho Steven Paian Pardede, [My Portfolio](https://www.linkedin.com/in/ridho-pardede/)
-- I'm from
+- I'm from Medan City, Indonesia
